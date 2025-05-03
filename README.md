@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Frameworks and courses etc.**
 
-- 👨‍💻 All of my projects are available at [www.linkedin.com/in/achinthya-ashinsani-a4b8362a3](www.linkedin.com/in/achinthya-ashinsani-a4b8362a3)
+- 👨‍💻 All of my projects are available at [www.linkedin.com/in/achinthya-ashinsani-a4b8362a3](https://www.linkedin.com/in/achinthya-ashinsani-a4b8362a3/)
 
 - 📫 How to reach me **aashinsani2001@gmail.com**
 
